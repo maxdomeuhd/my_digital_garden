@@ -2,12 +2,19 @@
 {"dg-publish":true,"permalink":"/x/publish-home/","tags":["gardenEntry"]}
 ---
 
+
+
+[[10 Healing & Medicine/15 Modalities/Flower Remedies 🌼/Bachblüten\|Bachblüten]]
+
+
+
+
+
+---
 [[00 my needs/08 ⏳ Space-Time/08.02 🎬 Events/25-02-14 Michael Meeting 4\|25-02-14 Michael Meeting 4]]
 
 [[00 my needs/08 ⏳ Space-Time/08.02 🎬 Events/25-04-02 Michael Meeting 3 with parents\|25-04-02 Michael Meeting 3 with parents]]
 
-
-[[10 Healing & Medicine/15 Modalities/Flower Remedies 🌼/Mix 2 - Resting in safety\|Mix 2 - Resting in safety]]
 
 ### Media
 Videos wo ich verschiedene Phasen eingefangen habe
