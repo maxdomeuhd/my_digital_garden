@@ -33,13 +33,13 @@ Jetzt wo ich bald wieder öfter nach draußen gehe, möchte ich mich zu den Blum
 - Bei Rock Rose, Star of Bethlehem, Olive habe ich das Gefühl "Das ist mir passiert"
 - Bei Aspen & Vervain habe ich das Gefühl "Das bin ich & diese Tendenz drückt sich gerade negativ aus" 
 
-Reihenfolge, was ich am präsentesten und häufigsten erlebe
-
-1. Vervain
-2. Rock Rose
-3. Aspen 
-4. Olive (Erschöpfung immer, aber stört nicht so sehr)
-5. Star of Bethlehem
+> [!NOTE]-  Reihenfolge, was ich am präsentesten und häufigsten erlebe
+> 
+> 1. Vervain
+> 2. Rock Rose
+> 3. Aspen 
+> 4. Olive (Erschöpfung immer, aber stört nicht so sehr)
+> 5. Star of Bethlehem
 
 ### english
 
