@@ -19,23 +19,6 @@ Die nächste Mischung die ich machen will:
 > [!NOTE]- **Star of Bethlehem & Rock Rose** 
 > (unter)stützend: Um das Trauma und die körperlich manifestierte Furcht zu lösen und zu integrieren und stabilisieren
 
-> [!NOTE]- **Vervain**
->  als "Konstitutions-Blüte": um Erholung einzuleiten und meine Intensität gezielter einzusetzen, bzw zum bei Bedarf innehalten, loslassen, abschalten und entspannen. Aus meinem selbst gebauten Hamsterrad aussteigen
-> - geht seeeehr lange zurück, bis in Kindheit wo ich keine Anerkennung meiner Eltern bzgl Kreativität und eigenen Ideen bekam, manchmal sogar kritisiert wurde. 
-
-> [!NOTE]- **Olive** 
-> zur generellen Stärkung und Kraft, um innere Transformation durchzustehen
-
-unklare Überlegungen 
-
-> [!NOTE]- **Wild Oat**
-> - Hier geht es oft um den Lebenssinn und Karrierewahl, aber ich frage mich ob es auch tiefer wirkt, auf der fundamentalsten Ebene der Existenz
-> - in HP ging mir die Sinnhaftigkeit meiner Rolle im "Spiel des Lebens" verloren und Unfähigkeit, wieder von ganzem Herzen daran teilzunehmen (ich werde traurig als ich das schreibe)
-> - Berufsorientierung etc betrifft mich auch sehr, aber noch nicht in der aktuellen Situation. Etwas leisten wollen, aber nicht wissen wo und wie. Aktuell leide ich aber nicht darunter 
-> - wird gerne verwendet in unklaren Fällen, wo selbst von Seiten des Behandlers zu viele Blüten angezeigt sind
-> - schon witzig dass ich mir unklar bin über die Blüte der Unklarheit :D
-
-
 > [!NOTE]- **Agrimony**
 > - wird oft erwähnt als verstecken wahrer Probleme hinter Oberflächlichkeit und Fröhlichkeit, aber auch hier frage ich mich ob das nicht deutlich tiefer gehen kann. Ich weiß es ja besser um nicht zu Schauspiel und Drogen zu greifen, habe aber vielleicht andere, weniger offensichtliche Schlupflöcher zur Verdrängung gefunden
 > 	- früher Zucker und Videospiele, heute vielleicht Bücher und intellektuelles Lernen als Flucht? Dass die Dinge in die ich flüchte, "reifer" werden, die Flucht aber die selbe bleibt.
@@ -76,6 +59,24 @@ Tritt infolge der Einnahme von Agrımony eine innere Unruhe auf, die eventuell s
 { #754b1f}
 
 
+> [!NOTE]- **Olive** 
+> zur generellen Stärkung und Kraft, um innere Transformation durchzustehen
+
+unklare Überlegungen 
+
+> [!NOTE]- **Wild Oat**
+> - Hier geht es oft um den Lebenssinn und Karrierewahl, aber ich frage mich ob es auch tiefer wirkt, auf der fundamentalsten Ebene der Existenz
+> - in HP ging mir die Sinnhaftigkeit meiner Rolle im "Spiel des Lebens" verloren und Unfähigkeit, wieder von ganzem Herzen daran teilzunehmen (ich werde traurig als ich das schreibe)
+> - Berufsorientierung etc betrifft mich auch sehr, aber noch nicht in der aktuellen Situation. Etwas leisten wollen, aber nicht wissen wo und wie. Aktuell leide ich aber nicht darunter 
+> - wird gerne verwendet in unklaren Fällen, wo selbst von Seiten des Behandlers zu viele Blüten angezeigt sind
+> - schon witzig dass ich mir unklar bin über die Blüte der Unklarheit :D
+
+
+
+
+> [!NOTE]- **Vervain**
+>  als "Konstitutions-Blüte": um Erholung einzuleiten und meine Intensität gezielter einzusetzen, bzw zum bei Bedarf innehalten, loslassen, abschalten und entspannen. Aus meinem selbst gebauten Hamsterrad aussteigen
+> - geht seeeehr lange zurück, bis in Kindheit wo ich keine Anerkennung meiner Eltern bzgl Kreativität und eigenen Ideen bekam, manchmal sogar kritisiert wurde. 
 
 
 Jetzt wo ich bald wieder öfter nach draußen gehe, möchte ich mich zu den Blumen im Garten setzen und sie beobachten, somit hoffentlich deren Welt und Sprache besser kennenlernen
